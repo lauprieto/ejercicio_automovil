@@ -1,1 +1,1 @@
-"# Sistemas Expertos" 
+Laura Valentina Prieto Lozano
